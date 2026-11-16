@@ -1,7 +1,7 @@
 # d.fingerstyle
 Daniel | Guitarist · Composer · Arranger · Cover Artist
 
-I'm Daniel Helmel, a 14-year-old guitarist known online as D.Fingerstyle.
+I'm Daniel, a 14-year-old guitarist known online as D.Fingerstyle.
 
 I've been playing guitar for approximately 1.2 years. My musical journey started with classical guitar, eventually leading me through electric guitar and flamenco before discovering modern percussive fingerstyle.
 
