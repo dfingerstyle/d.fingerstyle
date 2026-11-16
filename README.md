@@ -1,5 +1,5 @@
 # d.fingerstyle
-Daniel Helmel | Guitarist · Composer · Arranger · Cover Artist
+Daniel | Guitarist · Composer · Arranger · Cover Artist
 
 I'm Daniel Helmel, a 14-year-old guitarist known online as D.Fingerstyle.
 
